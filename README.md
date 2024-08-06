@@ -4,7 +4,9 @@
 
 ## JK-CLOUD机场介绍
 
-JK-CLOUD机场创建于2022年1月已经稳定运营1年多。解锁Netfilx/ChatGPT/Hulu/Hbo/Disney+/Dazn等流媒体。全球20个国家接入，支持SS协议。提供P站Premium共享账号和Netflix共享账号使用。
+JK-CLOUD机场创建于2022年1月已经稳定运营多年，全IEPL专线机场 ，告别卡顿，无视晚高峰。
+
+解锁Netfilx/ChatGPT/Hulu/Hbo/Disney+/Dazn等流媒体。全球20个国家接入，支持SS协议。提供P站Premium共享账号和Netflix共享账号使用。
 
 最低￥10/月，试用后再购买其他套餐。
 
