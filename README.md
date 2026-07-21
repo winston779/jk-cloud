@@ -1,6 +1,6 @@
 # JK-CLOUD官网地址
 
-最新地址：[jkcloud.net](https://jkcloud.co/register?aff=y7Dn5YcL)
+最新地址：[jkcloud.net](http://jk-cloud.net/register?aff=y7Dn5YcL)
 
 ## JK-CLOUD机场介绍
 
